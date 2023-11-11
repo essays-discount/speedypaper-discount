@@ -1,4 +1,6 @@
-<head>
+<!DOCTYPE html>
+<html lang="en">
+    <head>
     <meta charset="UTF-8">
     <meta name="viewport" content="width=device-width, initial-scale=1.0">
     <meta name="description" content="Unlock a 10% discount on SpeedyPaper essay writing services. Use our exclusive SpeedyPaper discount code for savings on quality academic writing assistance.">
@@ -28,3 +30,5 @@
 <p>SpeedyPaper offers a satisfaction guarantee, with revisions and refunds if the service does not meet the agreed standards.</p>
 </div>
 </article>
+</body>
+</html>
