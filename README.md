@@ -12,7 +12,9 @@
 
 SpeedyPaper Discount Code “NqzYFJ38” ⚡ 15% OFF ⚡ 
 
-<h2><center><a href="https://www.paperhelp.org/order.html?pid=12093&amp;discount_code=helpmypaper10&amp;sub_id=" rel="noopener noreferrer nofollow"><strong>&gt;&gt; GET DISCOUNT NOW &lt;&lt;</strong></a></center></h2>
+<center><a href="https://www.paperhelp.org/order.html?pid=12093&discount_code=helpmypaper10&sub_id=github"><img src="https://i.ibb.co/p2Swghw/discount.png" alt="" /></a></center>
+
+<h2><center><a href="https://www.paperhelp.org/order.html?pid=12093&discount_code=helpmypaper10&sub_id=github" rel="noopener noreferrer nofollow"><strong>&gt;&gt; GET DISCOUNT NOW &lt;&lt;</strong></a></center></h2>
     
 <p>Embarking on your academic journey can be costly, but with SpeedyPaper's discount code, you're guaranteed to get more value for less. Let's dive into how you can make the most of this fantastic offer, ensuring that your essays and papers are not only top-notch but also budget-friendly.</p>
 <h2>Your Gateway to Affordable Academic Success with SpeedyPaper</h2>
