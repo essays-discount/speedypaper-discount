@@ -1,12 +1,12 @@
 <!DOCTYPE html>
 <html lang="en">
     <head>
+         <title>SpeedyPaper Discount Code & Coupons Codes 2024</title>
     <meta charset="UTF-8">
     <meta name="viewport" content="width=device-width, initial-scale=1.0">
     <meta name="description" content="Unlock a 10% discount on SpeedyPaper essay writing services. Use our exclusive SpeedyPaper discount code for savings on quality academic writing assistance.">
     <meta name="keywords" content="SpeedyPaper discount, academic writing discount, essay service savings, SpeedyPaper promo code, student paper discount">
-    <title>SpeedyPaper Discount Code & Coupons Codes 2024</title>
-</head>
+   </head>
 <article>
 <h1>SpeedyPaper Discount Code 2024</h1>
 
